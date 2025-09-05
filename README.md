@@ -5,3 +5,5 @@ says, apple accoutn is not active
 
 
 wait let me check 
+says account is locked
+maybe too many attempts 
