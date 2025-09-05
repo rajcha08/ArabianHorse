@@ -9,3 +9,6 @@ i have the link in email. so if you lose it ask
 
 
 I saved the link. I'm glad kids liked it. :)
+
+i wanted to tell thrm you gave it. i will tell them actually. 
+i miss you. edo yearing laga undi. pull in my heart. 
