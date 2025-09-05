@@ -15,3 +15,6 @@ i miss you. edo yearing laga undi. pull in my heart.
 
 You no need to tell them.
 I miss you too. Even I have that longing thing pulling me. I miss you very much
+
+you are mine right? 
+we will get through this glitch right? 
