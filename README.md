@@ -13,3 +13,6 @@ no i did not feel any difference in you. i was looking at you more intensly. try
 https://www.icloud.com/notes/0ac0qP3XZ57IUEaEBsFbmyl2w#Test
 
 can you try the link. 
+
+
+I will try this in the ipad soon. It shows the link is from you. I mean your name.
