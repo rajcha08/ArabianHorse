@@ -1,11 +1,1 @@
-
-
-Ok. i miss you Vasu. 
-This love scares me. The way I have become vulnerable. I considered myself to have become stronger after many past experiences. but this. i dont know how to process. 
-
-
-I'm sorry that my love lead you to this state. I didnt anticipate this. I'm truly sorry :(
-
-
-it is because i feel you so deeply. that the fear is so much. i cannot think of anything but you 
-i really hope you will  not change your feelings about me. 
+Nothing will change. How was I when we met today?
